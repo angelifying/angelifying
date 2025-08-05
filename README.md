@@ -1,6 +1,6 @@
-![](https://64.media.tumblr.com/cb47d64a75351de26653e2f089473383/b572a179094d603f-60/s75x75_c1/bde403e8089e0c0990fbcdff9e22470d225fdcce.gifv) ❝ 𝗛𝗶𝗶 𝗩𝗮𝗹𝗲𝗻𝗰𝗶𝗮! 𝗡𝗼𝘁 𝗯𝗮𝗱 𝗼𝗳 𝗮 𝘄𝗲𝗮𝘁𝗵𝗲𝗿 𝗼𝘂𝘁 𝘁𝗵𝗲𝗿𝗲, 𝗿𝗶𝗴𝗵𝘁? ❞ ![](https://64.media.tumblr.com/92fd18009bd13476af3092e52f19a89c/b572a179094d603f-ff/s75x75_c1/c966e7f09da117c19b82e763d57a25d7d3d86349.gifv)
+![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ 𝗛𝗲𝘆, 𝗵𝗲𝘆! 𝗛𝗼𝗼𝘁! 𝗨𝘀𝗲𝘀 𝘁𝗵𝗲 𝘀𝗮𝗺𝗲 𝗹𝗲𝘁𝘁𝗲𝗿𝘀! ❞ ![](https://64.media.tumblr.com/58e50e5e4bc433fdfe4b22de7d028a33/db7ce6708c01e3ab-70/s75x75_c1/4021fc74fde2fec190a08697f82e2426f5d4be86.webp)
 
- <img src="https://64.media.tumblr.com/240ac67f88d76b6ec7afc1072d647cff/e3238a4cf3c8a896-db/s400x600/005a98ed4d2acbf5957755289cb4d988159b9792.gifv" alt="DIVIDER" width="385" height="29">
+ <img src="https://64.media.tumblr.com/a6c4882dfc58bdee51ff509d65beda11/5e6e6b6c245e427d-70/s400x600/3108ccd66a52f8e5112ff5292d661c04329095a6.pnj" alt="DIVIDER" width="400" height="96">
 
 𝗔𝗭𝗨𝗥𝗘 / 𝗦𝗧𝗔𝗥 ┆ 𝗦𝗛𝗘/𝗜𝗧 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
 
@@ -23,8 +23,8 @@
 
 (𝙖𝙨𝙞𝙙𝙚 𝙛𝙧𝙤𝙢 𝘿𝙉𝙄 𝙡𝙞𝙨𝙩 𝙖𝙣𝙮𝙤𝙣𝙚 𝙞𝙨 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 !)
 
-<img src="https://64.media.tumblr.com/e91d8eaa1e12f17594294054ceada605/c45abb6dc9445f9b-c4/s100x200/ca2f0b55b1065a57b57cc4600c55119a3020b016.gifv" width="160" height="95"> <img src="https://64.media.tumblr.com/34866f6fd8520a92c46237cb21f67572/048517b550743f13-15/s100x200/4f8ee4f2eb359d9e8b22ade94b278bf0506a921d.gifv" width="160" height="95"> 
+<img src="https://64.media.tumblr.com/02524b806d056b3ebaa235d7c94611cb/5e6e6b6c245e427d-fd/s100x200/e4be8e1af18f26023dece158aee8712caa4fa79e.gifv" width="160" height="95"> <img src="https://64.media.tumblr.com/34866f6fd8520a92c46237cb21f67572/048517b550743f13-15/s100x200/4f8ee4f2eb359d9e8b22ade94b278bf0506a921d.gifv" width="160" height="95"> 
 
-<img src="https://64.media.tumblr.com/d94993da2bdab08887b3ffbe60381f53/048517b550743f13-ad/s100x200/3023f7f35e46d05efb7fd9450f48d25925ee5790.gifv" width="160" height="95"> <img src="https://64.media.tumblr.com/6f787933ac056b181e152b0f8bfa16b8/6aabbea0af91b052-62/s250x400/4637758cce7f9efbb5c7fb04e9172b5f4c65c1e2.pnj" width="160" height="95"> 
+<img src="https://64.media.tumblr.com/d94993da2bdab08887b3ffbe60381f53/048517b550743f13-ad/s100x200/3023f7f35e46d05efb7fd9450f48d25925ee5790.gifv" width="160" height="95"> <img src="https://64.media.tumblr.com/6f1e849c82f207142614b66d534bf70d/5e6e6b6c245e427d-a0/s100x200/ced50b2b0105a712fcf965dc3844b07b20639900.gifv" width="160" height="95"> 
 
-<img src="https://64.media.tumblr.com/24d30ead9da1404cd00019396bfceefe/e3238a4cf3c8a896-90/s400x600/36b9b452ecdf4258edf9bd8f5d158034ced19f9e.gifv" alt="DIVIDER" width="400" height="12">
+<img src="https://64.media.tumblr.com/8e169788d6e736c460f9d9d79455483d/5e6e6b6c245e427d-30/s400x600/00528d084f02e19b21a60a90e5b9b61d666d58b3.pnj" alt="DIVIDER" width="400" height="96">
