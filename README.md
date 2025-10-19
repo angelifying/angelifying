@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ 𝗛𝗲𝘆, 𝗵𝗲𝘆! 𝗛𝗼𝗼𝘁! 𝗨𝘀𝗲𝘀 𝘁𝗵𝗲 𝘀𝗮𝗺𝗲 𝗹𝗲𝘁𝘁𝗲𝗿𝘀! ❞ ![](https://64.media.tumblr.com/58e50e5e4bc433fdfe4b22de7d028a33/db7ce6708c01e3ab-70/s75x75_c1/4021fc74fde2fec190a08697f82e2426f5d4be86.webp)
+![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ 𝗗𝗼𝘄𝗻 𝘁𝗼 𝗺𝗮𝗸𝗲 𝗮 𝗱𝗲𝗮𝗹?! ❞ ![](https://64.media.tumblr.com/58e50e5e4bc433fdfe4b22de7d028a33/db7ce6708c01e3ab-70/s75x75_c1/4021fc74fde2fec190a08697f82e2426f5d4be86.webp)
 
  <img src="https://64.media.tumblr.com/a6c4882dfc58bdee51ff509d65beda11/5e6e6b6c245e427d-70/s400x600/3108ccd66a52f8e5112ff5292d661c04329095a6.pnj" alt="DIVIDER" width="400" height="96">
 
