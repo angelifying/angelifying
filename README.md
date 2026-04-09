@@ -1,6 +1,6 @@
-![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ 𝗦𝗼 [𝘆𝗼𝘂'𝗿𝗲](https://github.com/theperfectchristmas) 𝘁𝗵𝗲 𝗖𝗵𝗿𝗶𝘀𝘁𝗺𝗮𝘀 𝗛𝗼𝗹𝗶𝗱𝗮𝘆 𝗠𝗮𝗶𝗻? ❞ ![](https://64.media.tumblr.com/822f8d8b73f81c79e05c5a84c647e371/8b76d125a93110fe-4d/s75x75_c1/f1c3bd1c80f3da13a53eb2f7a8f2546b3464b73b.gifv)
+![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ We're a perfecrt paragon of pleasing We are a perfect paragon of perilous. ❞ ![](https://64.media.tumblr.com/822f8d8b73f81c79e05c5a84c647e371/8b76d125a93110fe-4d/s75x75_c1/f1c3bd1c80f3da13a53eb2f7a8f2546b3464b73b.gifv)
 
- <img src="https://64.media.tumblr.com/25dfa863dd8c3ac55b9d2475c92495e8/11b308bca8a80dff-c8/s400x600/3a8bf48bc265b2beecb2aaa1004448430f3ccf48.pnj" alt="DIVIDER" width="400" height="96">
+  ![](https://64.media.tumblr.com/c4390be931d58a9a996539462063988f/466cad1e82d957f5-17/s2048x3072/9745d31ef18d0a1ac5381803905f442d782368b8.gifv)
 
 𝗦𝗘𝗩𝗜 !! ┆ 𝗦𝗛𝗘/𝗜𝗧 ![](https://64.media.tumblr.com/d6d10db160915a43250f36b3f502b7d2/a37b066fbd53f8a4-6e/s75x75_c1/b287aaf6bafec60532da8e448ab896c6bcea09f2.gifv)
 
