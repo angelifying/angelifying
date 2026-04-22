@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ We're a perfecrt paragon of pleasing We are a perfect paragon of perilous. ❞ ![](https://64.media.tumblr.com/822f8d8b73f81c79e05c5a84c647e371/8b76d125a93110fe-4d/s75x75_c1/f1c3bd1c80f3da13a53eb2f7a8f2546b3464b73b.gifv)
+![](https://64.media.tumblr.com/0018ac2053c69abb00c067f033f75593/d5f3956d46975a7f-95/s75x75_c1/3c78e3fd5c12f82e1b8d0b217caa9c6491fc4904.gifv) ❝ We're a perfect paragon of pleasing ... We are a perfect paragon of perilous. ❞ ![](https://64.media.tumblr.com/822f8d8b73f81c79e05c5a84c647e371/8b76d125a93110fe-4d/s75x75_c1/f1c3bd1c80f3da13a53eb2f7a8f2546b3464b73b.gifv)
 
   ![](https://64.media.tumblr.com/c4390be931d58a9a996539462063988f/466cad1e82d957f5-17/s2048x3072/9745d31ef18d0a1ac5381803905f442d782368b8.gifv)
 
